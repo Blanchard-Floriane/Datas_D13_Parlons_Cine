@@ -26,5 +26,5 @@ C'est ce visuel que tu feras défiler jeudi lors de ta présentation orale.
 Ton temps de parole sera de 10 minutes top chrono. Prépare bien ton récit pour captiver tout le monde. N'hésite pas à tenter des choses, la RH t'a bien précisé que l'objectif c'est que ta présentation soit mémorable. Au sens premier du terme : que des personnes se rappellent de certaines infos partagées.
 
 3. Rendu attendu
-   Ta présentation PPT.
+   Ta présentation PPT = https://prezi.com/view/oU36YmliLWzF8rzSQkVH/
    Demain matin, pendant les corrections, tu feras réellement l'exercice de présentation orale. Vous pourrez ainsi comparer les différences d'interprétation et de choix que vous avez faits, en partant pourtant d'un même fichier de données. Et tes collègues de formation pourront à la fin de ta présentation te faire des retours en s'aidant des guidelines de correction.
